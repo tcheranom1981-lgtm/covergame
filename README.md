@@ -1,0 +1,2 @@
+# covergame
+cover skrin peta
